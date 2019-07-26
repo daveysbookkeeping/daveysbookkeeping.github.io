@@ -1,1 +1,0 @@
-# Davey’s Bookkeeping
